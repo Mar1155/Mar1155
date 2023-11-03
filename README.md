@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Mar1155
-- 🌱 I actually am a freelancer software engineer
+- 🌱 I am a freelancer software engineer and cybersecurity student
