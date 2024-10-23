@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Mar1155
-- 🌱 I am a freelancer software engineer and cybersecurity student
+- 🌱 I am an Italian Software Engineer and cybersecurity student
